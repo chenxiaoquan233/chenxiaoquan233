@@ -1,1 +1,1 @@
-![code freq](https://wakatime.com/share/@chenxiaoquan233/eaddd17d-664b-4425-8f6f-06c0872a9c21.png)
+![code freq](https://wakatime.com/share/@chenxiaoquan233/264fc50a-4493-4de1-bd53-02d27f176e43.png)
